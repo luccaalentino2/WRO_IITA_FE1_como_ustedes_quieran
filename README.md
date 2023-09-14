@@ -1,5 +1,7 @@
 # WRO_IITA_FE1_como_ustedes_quieran
 Como ustedes quieran 😉
+
+
 Aqui se encuentra el Infome general
 [informe para la WRO.pdf](https://github.com/luccaalentino2/WRO_IITA_FE1_como_ustedes_quieran/files/12589796/informe.para.la.WRO.pdf)
 
