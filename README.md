@@ -3,8 +3,7 @@ Como ustedes quieran 😉
 
 
 Aqui se encuentra el Infome general
-[informe para la WRO.pdf](https://github.com/luccaalentino2/WRO_IITA_FE1_como_ustedes_quieran/files/12589796/informe.para.la.WRO.pdf)
-
+https://docs.google.com/document/d/1HnYyKx_dXGrFJkyXhytmIyG6_WGZ0wGe5KrJQ_2J51g/edit?usp=sharing
 
 
 
