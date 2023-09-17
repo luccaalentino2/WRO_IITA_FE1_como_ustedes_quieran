@@ -2,7 +2,7 @@
 Como ustedes quieran 😉
 
 
-Aqui se encuentra el Infome general
+Aqui se encuentra el Infome general:
 https://docs.google.com/document/d/1HnYyKx_dXGrFJkyXhytmIyG6_WGZ0wGe5KrJQ_2J51g/edit?usp=sharing
 
 
